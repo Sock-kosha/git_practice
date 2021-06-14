@@ -1,1 +1,1 @@
-機能C
+BBBBBBBB
